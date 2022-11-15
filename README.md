@@ -1,6 +1,6 @@
 # Smartschool
 
-![source code aplikasi smartschool](https://i.ytimg.com/an_webp/-G1voipkdQk/mqdefault_6s.webp?du=3000&sqp=CN7CyJsG&rs=AOn4CLD2feXRN1-xmxWLL34z8pa5Soretw)
+![source code aplikasi smartschool](https://1.bp.blogspot.com/-hHVOcBtJThM/YQetUDXE6OI/AAAAAAAAc10/hSdu0PNA77ASxDZNAB1voQImsldkKeMOwCLcBGAsYHQ/s0/Aplikasi%2BSmartSchool%2BCode%2BCandil%2BKuya12.png)
 
 ➤➤ GABUNG GRUP TELEGRAM KAMI: https://t.me/candilcode
 
